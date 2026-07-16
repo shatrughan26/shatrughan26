@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Deepak Kumar Sharma
+# Hi, I'm Deepak Kumar Sharma
 **A passionate Data Science Intern**
 
 Email Me 👉 ✉️ **deepak4996sharma@mail.com** For Collaboration/Project or Anything Else. 😊😊
